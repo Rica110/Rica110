@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about Defi
 - 💞️ I’m looking to collaborate on new projetos
 - 📫 How to reach me: I´m very friendly
-- 😄 Pronouns:Rica
+- 😄 Pronouns: Rica
 - ⚡ Fun fact: 2024 is being a challenge for me. Focus!
 
 <!---
